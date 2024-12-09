@@ -8,5 +8,5 @@
 - 💬 Ask me about anything but programming 😔
 - 📫 How to reach me: abdallahzekaik1@gmail.com
 - 😄 Pronouns: Baidochi 
-- ⚡ Fun fact: i like to daydream a lot 😴
+
 
