@@ -7,6 +7,5 @@
 - 🤔 I’m looking for help with js functions
 - 💬 Ask me about anything but programming 😔
 - 📫 How to reach me: abdallahzekaik1@gmail.com
-- 😄 Pronouns: Baidochi 
 
 
